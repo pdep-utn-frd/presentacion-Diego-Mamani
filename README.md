@@ -9,6 +9,8 @@ Número de legajo: 11227
 
 * Tengo 19 años
 
+* Nací en Cochabamba, Bolivia
+
 * Vivo en Zárate desde hace 10 años
 
 * Me gustan mucho los deportes, sobretodo basquet y fútbol. 
