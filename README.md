@@ -2,15 +2,14 @@
 
 ___
 
-![enlace]()
-
+![error](https://lh3.googleusercontent.com/yMkm9rj-OuyQcNFHAngL2HyQXgsABuFaz22CZU9hQu6We2mXIHmZzpD_2ueEXMzjljYqOA=s85)
 
 ___
 Número de legajo: 11227
 
 * Tengo 19 años
 
-* Soy de Bolivia y actualmente vivo en Zárate desde hace 10 años
+* Vivo en Zárate desde hace 10 años
 
 * Me gustan mucho los deportes, sobretodo basquet y fútbol. 
 
